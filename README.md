@@ -3,15 +3,16 @@
 
 ◢◤◢◤◢◤◢◤◢◤◢◤◢◤
 
-✧ :･ﾟ➽ ᥕᥱᥣᥴ᥆꧑ᥱ t᥆ ー MY GITHUB!
+✧ :･ﾟ➽ welcome to my ー MY GITHUB!
 
 BASIC DNI ! ◡̈ ଂ ﹀﹀﹀﹀
 
-︶︶ ⸝⸝ 🌊 ꒰ Come interact!
-
 ┊ NOT AN IRL ❝ OR SYS ❝ OR KIN
 
+︶︶ ⸝⸝ 🌊 ꒰ Come interact!
+
 ┊ Please check out my Pronouns and Straw page!
-[c] ╰──────────────── 🌨️ ꒱
+
+╰──────────────── 🌨️ ꒱
 
 ◢◤◢◤◢◤◢◤◢◤◢◤◢◤
