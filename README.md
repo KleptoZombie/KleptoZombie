@@ -1,6 +1,6 @@
 # About Me ✧˚ · .
 
-![alt text](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/6a14ce6b-ef6b-4b0b-af16-a2673c5dfc6f) | ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/05f4e6cc-0579-4334-9df3-1d58e05d44ef)
+![alt text](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/6a14ce6b-ef6b-4b0b-af16-a2673c5dfc6f) ૮꒰/ฅ//ฅ//꒱ა  ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/ec2f9954-8cdd-4d34-8998-3cb3d7306acd)
 
 
 🢅 That's me! ◡̈ ଂ ﹀﹀﹀﹀
