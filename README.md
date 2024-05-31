@@ -82,11 +82,11 @@
 
 ┊    ୭ 🧷 ✧˚. ᵎᵎ     Sometimes I take long breaks from pony town.
 
-┊    ୨ ๑˖  ⟆ ✦  ◜﹗     I d
+┊    ୨ ๑˖  ⟆ ✦  ◜﹗     I overshare sometimes, do tell me to keep quiet...
 
-┊    ୭ 🧷 ✧˚. ᵎᵎ     Y
+┊    ୭ 🧷 ✧˚. ᵎᵎ     Kys and Kms jokes are going to be made, do say if that makes you uncomforable.
 
-┊    ୨ ۪  𖦹 ֢﹗     F
+┊    ୨ ۪  𖦹 ֢﹗     Perchance might be very awkward if we just met, just a warning!
 
 ⊹˚₊‧───────────‧₊˚⊹
 
@@ -99,15 +99,15 @@
 ﾟ。  ╰╮ *iii*. **:̲  About me   ›** 💌
 　ﾟ･｡･ﾟ  
 
-┊    ୨ ۪  𖦹 ֢﹗     A                                                                                         
+┊    ୨ ۪  𖦹 ֢﹗     I go by Janey or Aradia!                                                                                     
 
-┊    ୭ 🧷 ✧˚. ᵎᵎ     P
+┊    ୭ 🧷 ✧˚. ᵎᵎ     I am seventeen! An *awesome* pisces if you will.    
 
-┊    ୨ ๑˖  ⟆ ✦  ◜﹗     I d
+┊    ୨ ๑˖  ⟆ ✦  ◜﹗     Please check my [Pronouns Page](https://en.pronouns.page/@kl3ptozombie)!
 
-┊    ୭ 🧷 ✧˚. ᵎᵎ     Y
+┊    ୭ 🧷 ✧˚. ᵎᵎ     Unfortunatly i **am** British.
 
-┊    ୨ ۪  𖦹 ֢﹗     F
+┊    ୨ ۪  𖦹 ֢﹗     Mega gay.
 
 ⊹˚₊‧───────────‧₊˚⊹
 
@@ -118,15 +118,15 @@
 ﾟ。  ╰╮ *iv*. **:̲  Dni   ›** 🍷
 　ﾟ･｡･ﾟ  
 
-┊    ୨ ۪  𖦹 ֢﹗     A                                                                                         
+┊    ୨ ۪  𖦹 ֢﹗     Anyone who copies pony town skins or uses offensive ones.                                                                                       
 
-┊    ୭ 🧷 ✧˚. ᵎᵎ     P
+┊    ୭ 🧷 ✧˚. ᵎᵎ     People who don't respect boundries.
 
-┊    ୨ ๑˖  ⟆ ✦  ◜﹗     I d
+┊    ୨ ๑˖  ⟆ ✦  ◜﹗     Overuse of slurs or saying slurs you can not reclaim.
 
-┊    ୭ 🧷 ✧˚. ᵎᵎ     Y
+┊    ୭ 🧷 ✧˚. ᵎᵎ     Basic DNI: Homophobes, racists, proshippers, ect.
 
-┊    ୨ ۪  𖦹 ֢﹗     F
+┊    ୨ ۪  𖦹 ֢﹗     Please don't speak to me if you are under 14 or above the age of 20!
 
 ⊹˚₊‧───────────‧₊˚⊹
 
