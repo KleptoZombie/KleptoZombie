@@ -49,9 +49,11 @@
 
 ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/977843e8-4de3-4de3-9e48-cc97ec84abe4)
 
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/a9b544ca-d7ac-442c-bff9-023c2201674a)
+
 
  ｡ﾟﾟ･｡･ﾟﾟ｡
-ﾟ。  ╰╮ i. :̲  pony town   › ⌗
+ﾟ。  ╰╮ i. :̲  pony town   › 🎸
 　ﾟ･｡･ﾟ  
 
 ┊    ୨ ۪  𖦹 ֢﹗     Alot of the time, i may be off tab! So if I am not replying, please don't think I'm ignoring you!                                                                                           
@@ -71,7 +73,7 @@
 
 
  ｡ﾟﾟ･｡･ﾟﾟ｡
-ﾟ。  ╰╮ ii. :̲  Byi   › ⌗
+ﾟ。  ╰╮ ii. :̲  Byi   › 🍓
 　ﾟ･｡･ﾟ  
 
 ┊    ୨ ۪  𖦹 ֢﹗     I do make sexual jokes from time to time, so let me know if you aren't comfortable with them!                                                                                       
@@ -88,11 +90,11 @@
 
 ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/201dfc36-e615-4656-834f-0a5fab426339)
 
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/514aafc5-6fdd-4768-983c-81f19c8fd2a7)
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/32da8b2b-8aa8-4089-ae41-ec8159e3d1cb)
 
 
  ｡ﾟﾟ･｡･ﾟﾟ｡
-ﾟ。  ╰╮ iii. :̲  About me   › ⌗
+ﾟ。  ╰╮ iii. :̲  About me   › 💌
 　ﾟ･｡･ﾟ  
 
 ┊    ୨ ۪  𖦹 ֢﹗     A                                                                                         
@@ -111,7 +113,7 @@
 
 
  ｡ﾟﾟ･｡･ﾟﾟ｡
-ﾟ。  ╰╮ iv. :̲  Dni   › ⌗
+ﾟ。  ╰╮ iv. :̲  Dni   › 🍷
 　ﾟ･｡･ﾟ  
 
 ┊    ୨ ۪  𖦹 ֢﹗     A                                                                                         
