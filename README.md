@@ -8,6 +8,8 @@
 
 🢅 That's me! ୭ 🧷 ✧˚. ᵎᵎ 🎀
 
+![](https://komarev.com/ghpvc/?username=your-github-username&color=green)
+
 ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/9094d2e1-a43c-43cf-bb57-aa1569d9b930)
 
 
