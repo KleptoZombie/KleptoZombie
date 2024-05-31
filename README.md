@@ -22,7 +22,7 @@
 
 ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/0289b9d5-e767-47a3-aa91-d5c0d667f3da)
 
-
+⊹˚₊‧───────────‧₊˚⊹
 
 
 ╭── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ──╮
@@ -41,7 +41,7 @@
 
 ┊iv.  Dni
 
-┊ v.  Other
+⊹˚₊‧───────────‧₊˚⊹
 
 ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/977843e8-4de3-4de3-9e48-cc97ec84abe4)
 
@@ -60,6 +60,7 @@
 
 ┊    ୨ ۪  𖦹 ֢﹗     Feel free to sit + hug with me! No need to ask, i appriciate the company!
 
+⊹˚₊‧───────────‧₊˚⊹
 
 ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/eeda7cd6-4333-45e0-980b-c726ac085be7)
 
@@ -69,9 +70,9 @@
 ﾟ。  ╰╮ ii. :̲  Byi   › ⌗
 　ﾟ･｡･ﾟ  
 
-┊    ୨ ۪  𖦹 ֢﹗     A                                                                                         
+┊    ୨ ۪  𖦹 ֢﹗     I do make sexual jokes from time to time, so let me know if you aren't comfortable with them!                                                                                       
 
-┊    ୭ 🧷 ✧˚. ᵎᵎ     P
+┊    ୭ 🧷 ✧˚. ᵎᵎ     Sometimes I take long breaks from pony town.
 
 ┊    ୨ ๑˖  ⟆ ✦  ◜﹗     I d
 
@@ -79,12 +80,15 @@
 
 ┊    ୨ ۪  𖦹 ֢﹗     F
 
+⊹˚₊‧───────────‧₊˚⊹
 
 ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/201dfc36-e615-4656-834f-0a5fab426339)
 
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/514aafc5-6fdd-4768-983c-81f19c8fd2a7)
+
 
  ｡ﾟﾟ･｡･ﾟﾟ｡
-ﾟ。  ╰╮ iii. :̲  Dni   › ⌗
+ﾟ。  ╰╮ iii. :̲  About me   › ⌗
 　ﾟ･｡･ﾟ  
 
 ┊    ୨ ۪  𖦹 ֢﹗     A                                                                                         
@@ -97,8 +101,9 @@
 
 ┊    ୨ ۪  𖦹 ֢﹗     F
 
+⊹˚₊‧───────────‧₊˚⊹
 
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/f624dd6f-4f89-4ad5-a072-cd667474106b)
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/eeda7cd6-4333-45e0-980b-c726ac085be7)
 
 
  ｡ﾟﾟ･｡･ﾟﾟ｡
@@ -115,14 +120,11 @@
 
 ┊    ୨ ۪  𖦹 ֢﹗     F
 
+⊹˚₊‧───────────‧₊˚⊹
 
 ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/1547dcbc-4825-4579-941c-b6b85344fb7f)
 
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/b0d178f1-c433-45e2-be03-25e5f00669f0)
 
-︶︶ ⸝⸝  ꒰ Please view my 𝗽𝗿𝗼𝗻𝗼𝘂𝗻𝘀 and 𝘀𝗽𝗮𝗰𝗲𝗵𝗲𝘆 before interacting! 
 
-┊ Go send me something on 𝗿𝗲𝘁𝗿𝗼𝘀𝗽𝗿𝗶𝗻𝗴 and i'll respond ASAP!
-
-╰──────────────── 🌨️ ꒱
-
-◢◤◢◤◢◤◢◤◢◤◢◤◢◤
+╰─ ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ──╯
