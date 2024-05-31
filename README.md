@@ -1,6 +1,9 @@
 # About Me ✧˚ · .
 
-![alt text](https://external-preview.redd.it/DpgDRf6496HRAK_pOcorgFyr2DCeosfe-vm9pgZJf_Y.png?auto=webp&s=19137644ed11e6cd9356c1c568fcae428d8796fe)
+![alt text](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/6a14ce6b-ef6b-4b0b-af16-a2673c5dfc6f)
+
+🢅 That's me! ◡̈ ଂ ﹀﹀﹀﹀
+
 
 ◢◤◢◤◢◤◢◤◢◤◢◤◢◤
  
