@@ -1,6 +1,7 @@
 # About Me ✧˚ · .
 
-![alt text](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/6a14ce6b-ef6b-4b0b-af16-a2673c5dfc6f) ૮꒰/ฅ//ฅ//꒱ა  ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/ec2f9954-8cdd-4d34-8998-3cb3d7306acd)
+![alt text](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/6a14ce6b-ef6b-4b0b-af16-a2673c5dfc6f) ૮꒰/ฅ//ฅ//꒱ა  ![pony-town-# Aradia ' c + h ' W2I ⊹-sit-blinking-padded-4x](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/08911a20-7c47-40e5-a918-3332dadeddab)
+
 
 
 🢅 That's me! ◡̈ ଂ ﹀﹀﹀﹀
