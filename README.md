@@ -8,7 +8,8 @@
 
 🢅 That's me! ୭ 🧷 ✧˚. ᵎᵎ 🎀
 
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/273127ac-31cf-4b71-9286-ba42002aca38)
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/9094d2e1-a43c-43cf-bb57-aa1569d9b930)
+
 
 
 ┊ ⋆ ┊   .   ┊   ┊
