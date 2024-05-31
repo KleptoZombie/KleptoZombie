@@ -35,7 +35,7 @@
 
 ┊ii.  Byi
 
-┊iii. About Me                                                                                                                         ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/d6691ee3-ebfc-4298-b6e4-a3efbe6f0e46)
+┊iii. About Me                                                                                                                       
 
 ┊iv.  Dni
 
@@ -49,8 +49,17 @@
 ﾟ。  ╰╮ i. :̲  pony town   › ⌗
 　ﾟ･｡･ﾟ  
 
-┊                                                                                                     ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/b8649ed8-1ca2-4971-9b8c-01360e22394d)
+┊    ୨ ۪  𖦹 ֢﹗     Alot of the time, i may be off tab! So if I am not replying, please don't think I'm ignoring you!                                                                                           
 
+┊    ୨ ۪  𖦹 ֢﹗     Please whisper to interact with me so i can see your messages!
+
+┊    ୨ ۪  𖦹 ֢﹗     I do stay on pony town if i am away, afk or sleeping, so be wary of that.
+
+┊    ୨ ۪  𖦹 ֢﹗     You can find me in the safe server! Usaully in the homestuck area.
+
+┊    ୨ ۪  𖦹 ֢﹗     Feel free to sit + hug with me! No need to ask, i appriciate the company!
+
+ 
 
 ︶︶ ⸝⸝  ꒰ Please view my 𝗽𝗿𝗼𝗻𝗼𝘂𝗻𝘀 and 𝘀𝗽𝗮𝗰𝗲𝗵𝗲𝘆 before interacting! 
 
