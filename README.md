@@ -8,6 +8,9 @@
 
 🢅 That's me! ୭ 🧷 ✧˚. ᵎᵎ 🎀
 
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/273127ac-31cf-4b71-9286-ba42002aca38)
+
+
 ┊ ⋆ ┊   .   ┊   ┊
 
 ┊    ┊⋆     ┊   .
