@@ -19,8 +19,8 @@
 
 
 
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/2d03aa7b-1ae6-4556-bdf0-1ee63f0dbdd4)
 
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/9c863f0e-d6fd-4e8c-8893-0610cce53a4e)
 
 
 ╭── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ──╮
@@ -51,15 +51,71 @@
 
 ┊    ୨ ۪  𖦹 ֢﹗     Alot of the time, i may be off tab! So if I am not replying, please don't think I'm ignoring you!                                                                                           
 
-┊    ୨ ۪  𖦹 ֢﹗     Please whisper to interact with me so i can see your messages!
+┊    ୭ 🧷 ✧˚. ᵎᵎ     Please whisper to interact with me so i can see your messages!
 
-┊    ୨ ۪  𖦹 ֢﹗     I do stay on pony town if i am away, afk or sleeping, so be wary of that.
+┊    ୨ ๑˖  ⟆ ✦  ◜﹗     I do stay on pony town if i am away, afk or sleeping, so be wary of that.
 
-┊    ୨ ۪  𖦹 ֢﹗     You can find me in the safe server! Usaully in the homestuck area.
+┊    ୭ 🧷 ✧˚. ᵎᵎ     You can find me in the safe server! Usaully in the homestuck area.
 
 ┊    ୨ ۪  𖦹 ֢﹗     Feel free to sit + hug with me! No need to ask, i appriciate the company!
 
- 
+
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/b5df96f4-6c48-4c9b-b9fb-d50b2eaf4b62)
+
+
+
+ ｡ﾟﾟ･｡･ﾟﾟ｡
+ﾟ。  ╰╮ ii. :̲  Byi   › ⌗
+　ﾟ･｡･ﾟ  
+
+┊    ୨ ۪  𖦹 ֢﹗     A                                                                                         
+
+┊    ୭ 🧷 ✧˚. ᵎᵎ     P
+
+┊    ୨ ๑˖  ⟆ ✦  ◜﹗     I d
+
+┊    ୭ 🧷 ✧˚. ᵎᵎ     Y
+
+┊    ୨ ۪  𖦹 ֢﹗     F
+
+
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/2993f151-4e1b-4753-b345-3aaa3735869f)
+
+
+ ｡ﾟﾟ･｡･ﾟﾟ｡
+ﾟ。  ╰╮ iii. :̲  Dni   › ⌗
+　ﾟ･｡･ﾟ  
+
+┊    ୨ ۪  𖦹 ֢﹗     A                                                                                         
+
+┊    ୭ 🧷 ✧˚. ᵎᵎ     P
+
+┊    ୨ ๑˖  ⟆ ✦  ◜﹗     I d
+
+┊    ୭ 🧷 ✧˚. ᵎᵎ     Y
+
+┊    ୨ ۪  𖦹 ֢﹗     F
+
+
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/f624dd6f-4f89-4ad5-a072-cd667474106b)
+
+
+ ｡ﾟﾟ･｡･ﾟﾟ｡
+ﾟ。  ╰╮ iv. :̲  Dni   › ⌗
+　ﾟ･｡･ﾟ  
+
+┊    ୨ ۪  𖦹 ֢﹗     A                                                                                         
+
+┊    ୭ 🧷 ✧˚. ᵎᵎ     P
+
+┊    ୨ ๑˖  ⟆ ✦  ◜﹗     I d
+
+┊    ୭ 🧷 ✧˚. ᵎᵎ     Y
+
+┊    ୨ ۪  𖦹 ֢﹗     F
+
+
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/46c1206c-c34b-4efa-bba9-7e7b5415fdf1)
 
 ︶︶ ⸝⸝  ꒰ Please view my 𝗽𝗿𝗼𝗻𝗼𝘂𝗻𝘀 and 𝘀𝗽𝗮𝗰𝗲𝗵𝗲𝘆 before interacting! 
 
