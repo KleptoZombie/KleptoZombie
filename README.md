@@ -4,6 +4,7 @@
 
 🢅 That's me! ◡̈ ଂ ﹀﹀﹀﹀
 
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/382174d4-99d8-461e-a528-eb837070b744)
 
 ◢◤◢◤◢◤◢◤◢◤◢◤◢◤
  
