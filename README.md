@@ -16,7 +16,8 @@
 
 ![](https://komarev.com/ghpvc/?username=kleptozombie&color=ff69b4)
 
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/9094d2e1-a43c-43cf-bb57-aa1569d9b930)
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/68fa09c0-a4f0-4aec-9931-63acfdf78693)
+
 
 
 
@@ -32,14 +33,15 @@
 
 
 
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/0289b9d5-e767-47a3-aa91-d5c0d667f3da)
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/e8f279b8-028a-49f6-925c-6f0c416357b7)
+
 
 ⊹˚₊‧───────────‧₊˚⊹
 
 
 ╭── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ──╮
  
-**✧ :･ﾟ➽ welcome to my... ー 𝗠𝗬 𝗚𝗜𝗧𝗛𝗨𝗕!** 🍒
+**✧ :･ﾟ➽ welcome to my... ー 𝗠𝗬 𝗚𝗜𝗧𝗛𝗨𝗕!** 🩰
 
 
 
@@ -57,13 +59,14 @@
 
 ⊹˚₊‧───────────‧₊˚⊹
 
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/977843e8-4de3-4de3-9e48-cc97ec84abe4)
-
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/a9b544ca-d7ac-442c-bff9-023c2201674a)
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/ed328b62-9410-49e1-8b8e-05e581d9110a)
 
 
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/01e678e7-e314-4379-a6de-326fba6787db)
 
-ﾟ。  ╰╮ *i*. **:̲  pony town   ›** 🎸　ﾟ･｡･ﾟ  
+
+
+ﾟ。  ╰╮ *i*. **:̲  pony town   ›** 🦩　ﾟ･｡･ﾟ  
      **꒰ 🥄 ⊹ ˚ . ➶ . ˚ ༉‧**
 
 
@@ -80,12 +83,13 @@
 
 ⊹˚₊‧───────────‧₊˚⊹
 
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/eeda7cd6-4333-45e0-980b-c726ac085be7)
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/010938de-9524-425c-a04b-64620958afe6)
 
 
 
 
-ﾟ。  ╰╮ *ii*. **:̲  Byi   ›** 🍓ﾟ･｡･ﾟ  
+
+ﾟ。  ╰╮ *ii*. **:̲  Byi   ›** 🎀ﾟ･｡･ﾟ  
  **꒰ 🥄 ⊹ ˚ . ➶ . ˚ ༉‧**
 
 
@@ -103,13 +107,15 @@
 
 ⊹˚₊‧───────────‧₊˚⊹
 
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/201dfc36-e615-4656-834f-0a5fab426339)
-
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/32da8b2b-8aa8-4089-ae41-ec8159e3d1cb)
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/52f73283-3472-45b0-96f0-4141aef7704e)
 
 
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/fea734ab-d407-4d28-958d-2260796a7191)
 
-ﾟ。  ╰╮ *iii*. **:̲  About me   ›** 💌 ﾟ･｡･ﾟ  
+
+
+
+ﾟ。  ╰╮ *iii*. **:̲  About me   ›** 🌷͙֒ ﾟ･｡･ﾟ  
      **꒰ 🥄 ⊹ ˚ . ➶ . ˚ ༉‧**
 
 
@@ -127,11 +133,12 @@
 
 ⊹˚₊‧───────────‧₊˚⊹
 
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/eeda7cd6-4333-45e0-980b-c726ac085be7)
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/e56ae5d3-2b92-4cc6-a787-d759f7be79aa)
 
 
 
-ﾟ。  ╰╮ *iv*. **:̲  Dni   ›** 🍷 ﾟ･｡･ﾟ  
+
+ﾟ。  ╰╮ *iv*. **:̲  Dni   ›** 🩷 ﾟ･｡･ﾟ  
      **꒰ 🥄 ⊹ ˚ . ➶ . ˚ ༉‧**
 
 
@@ -149,9 +156,11 @@
 
 ⊹˚₊‧───────────‧₊˚⊹
 
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/1547dcbc-4825-4579-941c-b6b85344fb7f)
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/9ba46f43-9759-4137-a975-35d146775fc9)
 
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/b0d178f1-c433-45e2-be03-25e5f00669f0)
+
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/4e2a0c92-898f-4acb-ba72-960fc9d2c6be)
+
 
 
 ╰─ ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ⋅ ⋅ ── ──╯
