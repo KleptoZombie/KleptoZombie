@@ -2,9 +2,7 @@
 
 
 
-![Untitled](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/8068c2bc-8259-4be8-a610-a67c5d0a4737) ![Untitled](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/7af148b4-a2d3-4c71-98c8-b9be0c3fa7ac)
-
-   ![Untitled](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/02b6ae33-d6c7-4814-b37a-dbffc837ed9d)
+![Untitled](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/8068c2bc-8259-4be8-a610-a67c5d0a4737) ![Untitled](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/7af148b4-a2d3-4c71-98c8-b9be0c3fa7ac) ![Untitled](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/02b6ae33-d6c7-4814-b37a-dbffc837ed9d)
 
 
 
