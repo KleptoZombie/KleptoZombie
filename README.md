@@ -2,10 +2,9 @@
 
 
 
-[![alt text](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/6a14ce6b-ef6b-4b0b-af16-a2673c5dfc6f)](https://static.wikia.nocookie.net/mspaintadventures/images/c/c3/Roxy_Lalonde.png/revision/latest/scale-to-width/360?cb=20111117064128)       ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/fb018248-b8b7-4e4e-a390-3f325f342fbd)
-        [![pony-town-# Aradia ' c + h ' W2I ⊹-sit-blinking-padded-4x](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/08911a20-7c47-40e5-a918-3332dadeddab)
-](https://static.wikia.nocookie.net/vsbattles/images/b/b5/Roxyrender.png/revision/latest?cb=20201101112000)
-![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/497b1a2f-31ba-47f4-b304-38833b0821aa)
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/6aef952c-a436-47b7-a419-f72f5c74c9c7) ![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/85e81bdd-eeb9-4327-876f-1e2807f8e7b7)
+![image](https://github.com/KleptoZombie/KleptoZombie/assets/167636403/f882ad8d-9d76-4be2-96f9-077cc1657bcf)
+
 
 
 **🢅 That's me! ୭ 🧷 ✧˚. ᵎᵎ 🎀**
