@@ -76,7 +76,7 @@
 
 ┊    ୨ ๑˖  ⟆ ✦  ◜﹗     I do stay on pony town if i am away, afk or sleeping, so be wary of that.
 
-┊    ୭ 🧷 ✧˚. ᵎᵎ     You can find me in the safe server! Usaully in the homestuck area.
+┊    ୭ 🧷 ✧˚. ᵎᵎ     You can find me in the safe server! Usaully in the homestuck area OR project sekai.
 
 ┊    ୨ ۪  𖦹 ֢﹗     Feel free to sit + hug with me! No need to ask, i appriciate the company!
 
