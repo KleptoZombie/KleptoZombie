@@ -120,9 +120,9 @@
 
 
 
-┊    ୨ ۪  𖦹 ֢﹗     I go by Janey or Aradia!                                                                                     
+┊    ୨ ۪  𖦹 ֢﹗      An *awesome* pisces if you will.                                                                                    
 
-┊    ୭ 🧷 ✧˚. ᵎᵎ     I am seventeen! An *awesome* pisces if you will.    
+┊    ୭ 🧷 ✧˚. ᵎᵎ     I am seventeen!    
 
 ┊    ୨ ๑˖  ⟆ ✦  ◜﹗     Please check my [Pronouns Page](https://en.pronouns.page/@kl3ptozombie)!
 
