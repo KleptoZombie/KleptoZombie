@@ -14,9 +14,9 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=kleptozombie&color=ff69b4)
+![](https://komarev.com/ghpvc/?username=kleptozombie&color=FFA500)
 
-![image](https://github.com/user-attachments/assets/f8ac0c0e-9aeb-4159-ae31-ed7096c4f1de)
+![image](https://github.com/user-attachments/assets/b8b2856d-d5c1-493b-a3e7-083c15641f0a)
 
 
 
