@@ -124,7 +124,7 @@
 
 ┊    ୨ ۪  𖦹 ֢﹗      An *awesome* pisces if you will.                                                                                    
 
-┊    ୭ 🧷 ✧˚. ᵎᵎ     I am seventeen!    
+┊    ୭ 🧷 ✧˚. ᵎᵎ     I am eighteen!    
 
 ┊    ୨ ๑˖  ⟆ ✦  ◜﹗     Please check my [Pronouns Page](https://en.pronouns.page/@kl3ptozombie)!
 
