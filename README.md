@@ -153,7 +153,7 @@
 
 ┊    ୭ 🧷 ✧˚. ᵎᵎ     Basic DNI: Homophobes, racists, proshippers, ect.
 
-┊    ୨ ۪  𖦹 ֢﹗     Please don't speak to me if you are under 14 PLEASE!!
+┊    ୨ ۪  𖦹 ֢﹗     Please don't speak to me if you are under 16 PLEASE!!
 
 ⊹˚₊‧───────────‧₊˚⊹
 
